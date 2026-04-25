@@ -2,3 +2,5 @@
 - [Wood Gas Truck Overview](https://youtu.be/AldzOu0TFSE)
 - [Young inventor runs car with wood](https://youtu.be/OWdpmmFadfE)
 - [Wood Burning Car](https://youtu.be/5FP6nHoF1uA)
+- [Firing up the woodgas truck](https://youtu.be/8Ag6LoqcVsM)
+- [](url)
