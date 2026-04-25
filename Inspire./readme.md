@@ -1,4 +1,5 @@
 - [Saskatchewan man builds wood-powered truck](https://youtu.be/B9v8denLLe0)
+- [Fuel of the future? Sask. man's truck runs on burning wood](https://youtu.be/ikNrwd_O4dk)
 - [Wood Gas Truck Overview](https://youtu.be/AldzOu0TFSE)
 - [Young inventor runs car with wood](https://youtu.be/OWdpmmFadfE)
 - [Wood Burning Car](https://youtu.be/5FP6nHoF1uA)
