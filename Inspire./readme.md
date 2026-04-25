@@ -3,4 +3,6 @@
 - [Young inventor runs car with wood](https://youtu.be/OWdpmmFadfE)
 - [Wood Burning Car](https://youtu.be/5FP6nHoF1uA)
 - [Firing up the woodgas truck](https://youtu.be/8Ag6LoqcVsM)
-- [](url)
+- [Wood Fuel Car Aka Woodfuel Car Issue Title Is Out Of The Wood (1938)](https://youtu.be/qjoCz2ZZbxs)
+- [1975: The Amazing COAL-POWERED Car | Blue Peter | Retro Transport | BBC Archive](https://youtu.be/mWxgp0LT6kQ)
+- [Retro Review: Coal-Powered Turbine Engine Oldsmobile](https://youtu.be/0CAN5nO1ag0)
