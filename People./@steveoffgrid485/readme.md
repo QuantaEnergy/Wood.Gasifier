@@ -14,4 +14,7 @@ https://www.youtube.com/@steveoffgrid485
 - [Exposing Ben Peterson's Lies!](https://youtu.be/IPueslpFhek)
 - [Wood Gasifier Builder's Workshop: Test Fire V3 Gasifier](https://youtu.be/6bA1Av-WK6k)
 - [Wood Gasifier Builder's Workshop: Gas Exit Assembly](https://youtu.be/46RqI5VCcGs)
-- [](url)
+- [Wood Gasifier Builder's Workshop: V3 Filter Basket](https://youtu.be/v6zS586m468)
+- [Wood Gasifier Builder's Workshop: V3 Heat Exchange](https://youtu.be/kYGMjOWPEfc)
+- [Wood Gasifier Builder's Workshop: V3 Assembly Animation](https://youtu.be/FE-bpeJLFIs)
+- [Wood Gasifier Business Opportunity](https://youtu.be/AN1pVmj0Hq4)
