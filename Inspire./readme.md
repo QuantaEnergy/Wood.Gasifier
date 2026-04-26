@@ -7,3 +7,5 @@
 - [Wood Fuel Car Aka Woodfuel Car Issue Title Is Out Of The Wood (1938)](https://youtu.be/qjoCz2ZZbxs)
 - [1975: The Amazing COAL-POWERED Car | Blue Peter | Retro Transport | BBC Archive](https://youtu.be/mWxgp0LT6kQ)
 - [Retro Review: Coal-Powered Turbine Engine Oldsmobile](https://youtu.be/0CAN5nO1ag0)
+- [Wood-powered car! (Benedito Novo - SC)](https://youtu.be/5T16BkQlGMQ)
+- [How does GASGEN WORK?](https://youtu.be/mk3a0wv-kZ4)
