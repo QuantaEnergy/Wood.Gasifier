@@ -6,7 +6,7 @@ https://www.youtube.com/@steveoffgrid485
 - [Wood Gasifier Builder Training: Reactor Part 2](https://youtu.be/DRGBMECjEQY)
 - [Wood Gasifier Builder Training: Reactor Part 3](https://youtu.be/_vS7ZoJ5O4w)
 - [Wood Gasifier Builder Training: Reactor Part 4](https://youtu.be/4CEfkVuUJ_4)
-- [](url)
+- [Wood Gasifier Builder Training: Leak Testing Part 5](https://youtu.be/dLu6jU3qEFE)
 - [Wood Gasifier Builder's Training: Part 7 Final Assembly](https://youtu.be/Q85T_j5YtCY)
 - [Running your generator on Wood Gas !](https://youtu.be/YR5Lm9oQCcI)
 - [Yes, you can build this Wood Gasifier!](https://youtu.be/8DgjkFP3kws)
@@ -18,3 +18,4 @@ https://www.youtube.com/@steveoffgrid485
 - [Wood Gasifier Builder's Workshop: V3 Heat Exchange](https://youtu.be/kYGMjOWPEfc)
 - [Wood Gasifier Builder's Workshop: V3 Assembly Animation](https://youtu.be/FE-bpeJLFIs)
 - [Wood Gasifier Business Opportunity](https://youtu.be/AN1pVmj0Hq4)
+- [My 1st Gasifier: A 600lb. paperweight](https://youtu.be/Y_itf4YZcKs)
