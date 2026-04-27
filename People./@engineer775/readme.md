@@ -5,3 +5,4 @@ https://www.youtube.com/@engineer775
 - [The L.E.A.F. Wood Gasifier](https://youtu.be/FqWOCHI9wuo)
 - [Storm Survival Systems Gasifier](https://youtu.be/vwODwwlvTHM)
 - [Compressing Woodgas for future use.](https://youtu.be/MaJ_-xmtsXc)
+- [The wood gas generator runs the whole farm!](https://youtu.be/yYGKn12Weu4)
